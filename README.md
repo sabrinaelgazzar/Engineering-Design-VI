@@ -27,7 +27,7 @@ There are numerous things you can accomplished in minecraft. The best thing abou
 - defeat the warden
 - go mining
 
-![Minecraft flower](image.jpg)
+![Minecraft flower](minecraftflower.jpeg)
 
 ---
 
