@@ -1,6 +1,6 @@
 _Alison Dutton, thomas charchie, lily hiduke group_
-**i love electrical engineering**
 
+**i love electrical engineering**
 
 # Watermelon talk
 ~~i like watermelon~~
@@ -8,6 +8,7 @@ _Alison Dutton, thomas charchie, lily hiduke group_
 
 **like i _hate_ watermelon**
 
-don't tell anyone <sub>but i kinda do</sub>
+don't tell anyone <sub>but i kinda do like watermelon flavoring</sub>
 
-|
+## Sabrina Elgazzar Achievements
+> baller
