@@ -1,15 +1,14 @@
 _Alison Dutton, Thomas charchie, Lily hiduke group_
 
-**i love electrical engineering**
+**EE 322 Class**
 
 ---
-# Watermelon talk
-~~i like watermelon~~
-**just kidding**
+# Views of Github
+~~I'm scared to learn Github! This is my first time using it~~
 
-**like i _hate_ watermelon**
+**Like I am _super scared_ to learn. There's a lot of things to go over**
 
-don't tell anyone <sub>but i kinda do like watermelon flavoring</sub>
+Shhh! <sub>don't tell anyone though!</sub>
 
 `the views and opinions of Sabrina Elgazzar does not reflect on her group members`
 ---
@@ -18,9 +17,8 @@ don't tell anyone <sub>but i kinda do like watermelon flavoring</sub>
 1. Being a leader on campus
 2. Having 3 internship oppertunities
 3. Eating really good bagels
-Through Sabrina's achievements, she has one thing to thank.
 
-The reason she has achieved these amazing things is because she stays organized. This is through google calender. Make your own using this link [Google Calender Link](https://calendar.google.com/calendar/u/0/r?pli=1) . #not sponsored
+Through Sabrina's achievements, she has one thing to thank. The reason she has achieved these amazing things is because she stays organized. This is through google calender. Make your own using this link [Google Calender Link](https://calendar.google.com/calendar/u/0/r?pli=1) . #not sponsored
 
 ---
 ### Minecraft
